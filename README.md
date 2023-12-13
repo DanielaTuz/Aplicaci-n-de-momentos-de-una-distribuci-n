@@ -1,0 +1,1 @@
+# Aplicaci-n-de-momentos-de-una-distribuci-n
